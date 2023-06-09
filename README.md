@@ -1,6 +1,6 @@
 # bygcloud官网地址
 
-最新地址：[bygcloud.com](https://bygcloud.com/#/register?code=rBQahsOg)
+最新地址：[bygcloud.com](https://ss.cn88.net/#/register?code=rBQahsOg)
 
 ## 简介
 
