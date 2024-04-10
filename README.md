@@ -1,6 +1,6 @@
 # bygcloud白月光官网地址
 
-最新地址：[bygcloud.com](https://bygcloud.com/#/register?code=rBQahsOg)
+最新地址：[bygcloud.com](https://byg.zzxuh.com/#/register?code=rBQahsOg)
 
 ## 简介
 
@@ -10,17 +10,7 @@
 
 ## 白月光机场优惠券
 
-第一弹
-
-全场通用8.5折优惠劵：Anniversary
-
-有效期：2023.9.24-9.30
-
-第二弹
-
-全场通用9折优惠劵：1001
-
-有效期：2023.10.1-10.7
+长期优惠券
 
 |有效期限|使用限制|优惠券|
 |----|----|----|
