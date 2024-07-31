@@ -1,6 +1,6 @@
 # bygcloud白月光官网地址
 
-最新地址：[bygcloud.com](https://byg.zzxuh.com/#/register?code=rBQahsOg)
+最新地址：[bygcloud.com](https://www.okjc.one/#/register?code=rBQahsOg)
 
 ## 简介
 
